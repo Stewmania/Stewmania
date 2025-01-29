@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Stewmania my name is Connor Stewart
-- I'm a senior at Southern Illinois University Edwardsville
+- I graduated from Southern Illinois University Edwardsville with a Bachelor in Computer Science and Minor in Mathematics
 - 👀 I’m interested in ice hockey, golf, and Brazillian Jiu Jitsu
 
 
